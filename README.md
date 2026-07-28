@@ -342,6 +342,10 @@ MIT License
 
 ### https://t.me/jisou4q
 
+### https://t.me/soso5q
+
+### https://t.me/super2q
+
 如果你是 Telegram 新用户，
 
 欢迎加入一起交流。
